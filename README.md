@@ -1,5 +1,5 @@
 # yashumahesh
-Hi there , currently i am pursuing my bachelors in information science
+Hi there👋🏻
 # 💫 About Me:
 i am currently pursuing my bachelors in information science
 
